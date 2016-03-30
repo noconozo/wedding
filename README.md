@@ -1,1 +1,1 @@
-# wataruayaka.github.io
+# wedding.github.io
